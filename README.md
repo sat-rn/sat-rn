@@ -3,6 +3,8 @@
 - 🌱 I’m currently learning coding lol
 - 💞️ I’m looking to collaborate on cool projects with other teens!
 - 📫 How to reach me @maddiemae33@gmail.com
+- she/he please ^-^
+- 13, minor.
 
 <!---
 sat-rn/sat-rn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
